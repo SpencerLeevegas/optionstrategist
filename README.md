@@ -1,5 +1,8 @@
 Privacy Policy
+
 Last updated: May 10, 2025
+
+
 This Privacy Policy describes our policies and procedures on the collection, use, and disclosure of your information when you use the Service, and informs you about your privacy rights and how the law protects you.
 We use your personal data to provide and improve the Service. By using the Service, you agree to the collection and use of information in accordance with this Privacy Policy.
 This Privacy Policy was created with the help of the Privacy Policy Generator.
